@@ -28,6 +28,6 @@ Explore more about [professional painting company](https://dhapainting.ca/profes
 
 Learn how a [professional painting company](https://dhapainting.ca/professional-painting-company/) can transform and protect your property with expert painting services.
 
-Tags
+**Tags**
 
 professional painting company, painting company Canada, expert painters, painting professionals, residential painting company, commercial painting company, interior painting experts, exterior painting specialists, trusted painting contractor, painting service provider
